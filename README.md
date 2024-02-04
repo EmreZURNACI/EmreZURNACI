@@ -7,7 +7,7 @@
 
 - 📫linkedin [https://www.linkedin.com/in/emre-zurnaci-593a47252/](https://www.linkedin.com/in/emre-zurnaci-593a47252/)
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
